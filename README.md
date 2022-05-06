@@ -11,14 +11,15 @@
 - I went through several future-thinking phases when I was growing up. I wanted to join the Navy at one point. I wanted to be a psychologist, a scene of crime officer.
 - But programmer and especially web developer was the thing that always stuck with me.
 - I never thought I'd have kids. I never thought I'd have a girlfriend. I never thought I'd meet any true friends.
-- But I needn't have worried. I met Angie, the best life partner I could ever have imagined. I have kids, Alex and Artemis, I could not have hoped to meet a better pair of kids.
+- But I needn't have worried. I met Angie, the best life partner I ever could have imagined. I have kids, Alex and Artemis, I could not have hoped to meet a better pair of kids.
 - I got my dream job
-- And I met you lot!
-- I spent so much of my early life worried about the future.
+- I met you lot!
+- And my awesome family has always been here for me in so many ways
+- I spent so much of my early life worried about the future
 - And now, at 40, my head is in the past
 - Lost time due to COVID
-- What about all those people I've lost touch with,?
+- What about all those people I've lost touch with?
 - I can count on one hand the people here that I've known for less than 10 years
 - That's not counting people who have been alive less than 10 years
-- This gives me hope. Hope for a future, a beautiful future for all of us
-- Thank you all for sticking with me. I love you. Let's not worry about the future, let's welcome it.
+- Thinking about this gives me hope. Hope for a future, a beautiful future for all of us
+- Thank you all for sticking with me. I love you. Let's not worry about the future, let's welcome it
